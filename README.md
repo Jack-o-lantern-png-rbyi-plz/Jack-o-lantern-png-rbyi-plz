@@ -159,4 +159,4 @@ The name's Jack, Seven or Infected  </p>
 >
 <h1 align="center"> That's it for now</h1>
 
-this page is a wip which i'll update or edit with time cause it's a new github of mine cause i lost my [old one](https://github.com/Jack-o-lantern-png-rbyi-pls) and am lazy to make a proper one for now
+this page is a wip which i'll update or edit with time cause it's a new github of mine cause i lost my [old one](https://github.com/Jack-o-lantern-png-rbyi-pls)(which isoutdated) and am lazy to make a proper one for now
