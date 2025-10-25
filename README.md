@@ -1,5 +1,5 @@
-Why helloo there ponytown players
-</h1>
+<h1 p align="center">                          Why helloo there ponytown players
+</h1></p>
 <p align="center">
 The name's Jack, Seven or Infected  </p>
 <p align="center">C + H anytime !1 though if you do cuddle or hide expect me ask you why or what for or at least to say hi  </p>
