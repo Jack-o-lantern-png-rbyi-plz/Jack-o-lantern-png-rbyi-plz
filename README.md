@@ -1,4 +1,3 @@
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/a843aee8-ada7-49f5-b635-6b0b63282c82" /><h1 align="center">
 Why helloo there ponytown players
 </h1>
 <p align="center">
