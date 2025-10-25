@@ -1,4 +1,4 @@
-<h1 align="center">
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/a843aee8-ada7-49f5-b635-6b0b63282c82" /><h1 align="center">
 Why helloo there ponytown players
 </h1>
 <p align="center">
@@ -59,6 +59,8 @@ The name's Jack, Seven or Infected  </p>
 >@ ;; i dislike not being answered to(questions)/ghosted/ignored and allat kinda stuff for a looong whileee
 >
 >@ ;; i'm paranoid about lots of things and overthink a lot ''
+>
+>@ ;; uhh i might make a full list later but just fyi i'm a big 7n7 and infected kin so euurmm kinda keep that in mind, ok? ok I consider c00lkidd(forsake one ofc) as my kiddling cause of that so dont be surprised if i mention that sos
 >
 
 > [!TIP]
@@ -154,6 +156,12 @@ The name's Jack, Seven or Infected  </p>
 >ppl making fun of disabilities,
 >
 >cant reclaim said slurs and etc
+>
+> Jimmy Mouthwashing kinnies,apologists,fictkins,irls,lovers idfk, i fucking hate that guy and people who even consider themselves as his kinnies or sum baffl n make me uncomfortable 
+>
+> People who make 007n7 blonde, the real 7n7 has stated it makes him uncomfortable, seperate the owner of the acc n his avatar bruh stop being a fucking weirdo,,
+>
+> freaky/weird behaviour on safe server, sexual skin names and etc; there are kids there bro,please do not do shit like this, use pary chat AT LEAST or go to 18+ serber pls n thank you 
 >
 >or in a nutshell : [basic dni critera](https://dni-criteria.carrd.co/)
 >
