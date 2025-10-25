@@ -158,6 +158,8 @@ The name's Jack, Seven or Infected  </p>
 >
 > Jimmy Mouthwashing kinnies,apologists,fictkins,irls,lovers idfk, i fucking hate that guy and people who even consider themselves as his kinnies or sum baffl n make me uncomfortable 
 >
+> Black mask nolis, please, forsaken and pressure changed their designs not for nothing, black masked noli design made by a horrible person, it's not a loss to change it to white
+>
 > People who make 007n7 blonde, the real 7n7 has stated it makes him uncomfortable, seperate the owner of the acc n his avatar bruh stop being a fucking weirdo,,
 >
 > freaky/weird behaviour on safe server, sexual skin names and etc; there are kids there bro,please do not do shit like this, use pary chat AT LEAST or go to 18+ serber pls n thank you 
