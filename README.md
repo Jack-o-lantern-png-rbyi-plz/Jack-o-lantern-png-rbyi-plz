@@ -123,7 +123,7 @@ The name's Jack, Seven or Infected  </p>
 >
 >; Forsaken
 >
->;Termination protocol
+>; Madness Combat (int PLS PLS PLSSS)
 >
 >; If you're fan of any of these feel free to int(plea)
 
