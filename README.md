@@ -91,7 +91,7 @@ The name's Jack, Seven or Infected  </p>
 >
 >; The Amazing digital circus
 >
->; Team fortress 2
+>; **Team fortress 2**
 >
 >; Portal 1-2
 >
