@@ -164,8 +164,6 @@ The name's Jack, Seven or Infected  </p>
 >
 > Black mask nolis, please, forsaken and pressure changed their designs not for nothing, black masked noli design made by a horrible person, it's not a loss to change it to white
 >
-> People who make 007n7 blonde, the real 7n7 has stated it makes him uncomfortable, seperate the owner of the acc n his avatar bruh stop being a fucking weirdo,,
->
 > freaky/weird behaviour on safe server, sexual skin names and etc; there are kids there bro,please do not do shit like this, use pary chat AT LEAST or go to 18+ serber pls n thank you 
 >
 >or in a nutshell : [basic dni critera](https://dni-criteria.carrd.co/)
