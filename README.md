@@ -127,6 +127,8 @@ The name's Jack, Seven or Infected  </p>
 >
 >; Among us show ( its fire i promise )
 >
+>; Rick and Morty
+>
 >; If you're fan of any of these feel free to int(plea)
 
 >[!CAUTION]
